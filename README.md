@@ -10,7 +10,7 @@ Et en gros, on dit souvent de poser la zone d'appui avant du pied sur les cale-p
 
 ## Virage
 Vu que t'as que deux roues, va falloir pencher si tu veux tourner !
-Et pour pencher, tu te sers de ton propre poids (et un peu du guidon). En penchant le haut de ton corps d'un côté, tu forceras la moto à s'incliner vers là !
+Et pour pencher, tu te sers de ton propre poids (et un peu du guidon). En penchant le haut de ton corps d'un côté, tu forceras la moto à s'incliner vers là !\n
 Il faut penser aussi à garder son regard loin ! Pas à 5m de la moto ! Quand tu rentres dans le virage, t'as les yeux sur la sortie déjà, c'est ce qui te guidera vers le bon endroit (si t'as fait du ski, ça te rappellera des souvenirs, c'est le même principe).
 
 Détail supplémentaire :
