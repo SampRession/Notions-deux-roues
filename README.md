@@ -5,7 +5,7 @@ Deux trucs importants à garder en tête je pense :
 - Sois détendu ! Si tu sens que tu te crispes sur le guidon, tranquille, on s'détend ! Sinon, tu vas te fatiguer bien vite, et tu seras moins à l'aise pour gérer ton vésicule.
 - Fais corps avec la vroum-vroum ! Le bas de ton corps doit être soudé à la moto. Je sais pas quelle position exacte tu auras, mais utilise tes jambes pour faire un ensemble solide. Et le haut du corps sera plus souple, comme il faut que tu puisses bouger de droite à gauche.
 
-Généralement, quand tu roules, tu poses pas le milieu de ton pied (l'arche) sur ton cale-pied. Ça dépend ici aussi de la position que t'as sur la moto, mais quand tu ne te sers pas de ton frein arrière (ni du levier de vitesse, mais ça fonctionne pas pour toi ça ^^), tu remets normalement tes pieds dans une position de départ, à laquelle tu reviens dès que t'as fini d'utiliser un des deux leviers.
+Généralement, quand tu roules, tu poses pas le milieu de ton pied (l'arche) sur ton cale-pied. Ça dépend ici aussi de la position que t'as sur la moto, mais quand tu ne te sers pas de ton frein arrière (ni du levier de vitesse, mais ça fonctionne pas pour toi ça ^^), tu remets normalement tes pieds dans une position de départ, à laquelle tu reviens dès que t'as fini d'utiliser un des deux leviers.<b/>
 Et en gros, on dit souvent de poser la zone d'appui avant du pied sur les cale-pieds, celle sur laquelle tu prends appui quand tu sprintes (j'connais pas le nom de cette zone ^^).
 
 ## Virage
