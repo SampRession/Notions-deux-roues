@@ -1,5 +1,3 @@
-# Notions-deux-roues
-
 # Règles, notions
 ## Position sur la moto
 Selon le type de moto, la position sera bien différente, mais tu devrais en trouver une naturelle quand tu te poseras dessus.
